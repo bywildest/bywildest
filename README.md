@@ -1,0 +1,5 @@
+- 👋 Hi, I’m wildest (Aleksandar Trgovcevic)
+- 👀 I’m interested in all programming languages.
+- 🌱 I’m currently learning Lua for FiveM.
+- 💞️ The only thing I love is my redhead baby.
+- 📫 All information and requests for cooperation on instagram: @wildest02
